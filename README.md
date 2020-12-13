@@ -3,5 +3,6 @@
 
 Readme
 
-Hello , my steam name is wirebuilder28 
-And i welcome you to this
+Hello , my steamprofile http://steamcommunity.com/id/ingabenwetrust can be found here
+Add me if you will!
+And I welcome you to this repository.
